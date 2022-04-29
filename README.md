@@ -1,14 +1,14 @@
 
-# Offline Learning Games💡
+# Learning Games💡
 
-Best offline learning games for kids to play. Not only educational but fun too. These games can play anytime and anywhere with no internet required. Learn for fun!
+Best learning games for kids to play. Not only educational but fun too. These games can play anytime and anywhere. Learn for fun!
 
 
 ## FAQ❓
 
 #### What's it all about?
 
-These are all about logic games, counting and fun puzzle. Very challenging games, start from beginner to expert. Great variety of games that rapid the development of children’s mind.
+This is all about logic games, counting and fun puzzle. Very challenging games, start from beginner to expert. Great variety of games that rapid the development of children’s mind.
 
 #### What will they learn?
 
