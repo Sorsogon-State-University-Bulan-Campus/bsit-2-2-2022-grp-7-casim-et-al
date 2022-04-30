@@ -8,7 +8,7 @@ Best learning games for kids to play. Not only educational but fun too. These ga
 
 #### What's it all about?
 
-This all about logic games, counting and fun puzzle. Very challenging games, start from beginner to expert. Great variety of games that rapid the development of children’s mind.
+It is all about logic games, counting and fun puzzle. Very challenging games, start from beginner to expert. Great variety of games that rapid the development of children’s mind.
 
 #### What will they learn?
 
