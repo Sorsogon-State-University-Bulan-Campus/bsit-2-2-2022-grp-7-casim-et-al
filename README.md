@@ -25,9 +25,14 @@ It will develop their memory, matching as well as visual skills and help them to
 ## Authors✍️
 
 - [Khea Mae Habal (@KheaMaeHabal)](https://github.com/KheaMaeHabal)
+- Assigned to do the codes.
+
 - [Denzie Gipan (@denziegipan)](https://github.com/denziegipan)
+- Search some ideas for our content on the internet.
+
 - [Aljon Casim (@aljcasim)](https://github.com/aljcasim)
-- 
+- Edit our content on readme website.
+
 ## References🔗
 
 - [Source 1](https://spielgaben.com/14-of-the-best-offline-learning-games-for-kids/)
